@@ -1,0 +1,3 @@
+- ( )explore all time and space
+- ( )learn about dinosaurs
+- ( )play boardgames all night long
